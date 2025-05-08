@@ -1,2 +1,3 @@
 # Jobf1nd
-Just get d job
+How u doing?
+enjoy 
